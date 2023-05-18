@@ -1,3 +1,3 @@
 segunda actividad de consolidacion
 
-propiedad de Guillermo Doyle
+produccion de Guillermo Doyle
